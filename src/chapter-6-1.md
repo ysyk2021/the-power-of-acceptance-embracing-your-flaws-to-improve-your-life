@@ -1,5 +1,4 @@
-Chapter 6: Managing Fear and Anxiety: Definition of Fear and Anxiety
-====================================================================
+# Definition of Fear and Anxiety
 
 Fear and anxiety are common emotions that can hold us back from achieving personal growth and fulfillment. In this chapter, we will explore the definitions of fear and anxiety and how they can impact our lives.
 

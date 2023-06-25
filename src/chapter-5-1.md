@@ -1,5 +1,4 @@
-Chapter 5: Overcoming Shame and Self-Doubt: Definition of Shame and Self-Doubt
-==============================================================================
+# Definition of Shame and Self-Doubt
 
 Shame and self-doubt are common emotions that can have a significant impact on our mental health and well-being. Understanding the definition of these emotions is an important first step in learning how to overcome them and embrace acceptance. In this chapter, we will explore the definitions of shame and self-doubt.
 

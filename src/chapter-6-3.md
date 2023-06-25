@@ -1,5 +1,4 @@
-Chapter 6: Managing Fear and Anxiety: Building Resilience
-=========================================================
+# Building Resilience
 
 In this chapter, we will explore the role of acceptance in managing fear and anxiety. We will discuss how acceptance can help build resilience, allowing us to face challenges with greater calm and confidence.
 

@@ -1,5 +1,4 @@
-Chapter 8: The Connection Between Acceptance and Relationships: Strategies for Building Accepting Relationships
-===============================================================================================================
+# Strategies for Building Accepting Relationships
 
 In this chapter, we will explore the connection between acceptance and relationships. We will discuss how embracing acceptance can help us build stronger, healthier relationships with others, and offer strategies for building more accepting relationships.
 

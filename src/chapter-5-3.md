@@ -1,5 +1,4 @@
-Chapter 5: Overcoming Shame and Self-Doubt: Building Self-Compassion
-====================================================================
+# Building Self-Compassion
 
 In this chapter, we will explore the role of self-compassion in overcoming shame and self-doubt. We will discuss how embracing self-compassion can help us build greater resilience, self-awareness, and acceptance towards ourselves and others.
 

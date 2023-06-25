@@ -1,5 +1,4 @@
-Chapter 7: Mindfulness and Acceptance: Definition of Mindfulness
-================================================================
+# Definition of Mindfulness
 
 In this chapter, we will explore the concept of mindfulness - a key component in embracing acceptance and improving personal growth.
 

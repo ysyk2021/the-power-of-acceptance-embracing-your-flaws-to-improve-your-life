@@ -1,5 +1,4 @@
-Chapter 10: Conclusion: Summary of Key Points
-=============================================
+# Summary of Key Points
 
 Throughout this book, we have explored the power of acceptance in improving our lives. Here are some key points to remember:
 

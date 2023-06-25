@@ -1,5 +1,4 @@
-Chapter 4: Letting Go of Perfectionism: Techniques for Letting Go of Perfectionism
-==================================================================================
+# Techniques for Letting Go of Perfectionism
 
 Perfectionism can be a major obstacle to acceptance. When we strive for perfection, it can lead to self-criticism, anxiety, and an unhealthy focus on flaws and mistakes. In this chapter, we will explore some techniques for letting go of perfectionism and embracing acceptance.
 

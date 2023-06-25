@@ -1,5 +1,4 @@
-Chapter 4: Letting Go of Perfectionism: Negative Effects of Perfectionism
-=========================================================================
+# Negative Effects of Perfectionism
 
 Perfectionism can have negative effects on our mental health, relationships, and overall quality of life. When we strive for perfection, it can lead to self-criticism, anxiety, and an unhealthy focus on flaws and mistakes. In this chapter, we will explore some of the negative effects of perfectionism.
 

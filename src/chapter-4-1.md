@@ -1,5 +1,4 @@
-Chapter 4: Letting Go of Perfectionism: Definition of Perfectionism
-===================================================================
+# Definition of Perfectionism
 
 Perfectionism is a common trait that can have both positive and negative effects on our lives. While striving for excellence and high standards can be motivating, perfectionism can also lead to self-criticism, anxiety, and an unhealthy focus on flaws and mistakes. In this chapter, we will explore the definition of perfectionism.
 

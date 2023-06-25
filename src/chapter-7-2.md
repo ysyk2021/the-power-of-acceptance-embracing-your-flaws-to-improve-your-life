@@ -1,5 +1,4 @@
-Chapter 7: Mindfulness and Acceptance: Benefits of Practicing Mindfulness
-=========================================================================
+# Benefits of Practicing Mindfulness
 
 In this chapter, we will explore the benefits of practicing mindfulness for acceptance and personal growth. We will discuss how mindfulness can help us develop greater self-awareness, compassion, and resilience.
 

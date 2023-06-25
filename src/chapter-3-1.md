@@ -1,5 +1,4 @@
-Chapter 3: Embracing Your Flaws: Common Misconceptions About Flaws
-==================================================================
+# Common Misconceptions About Flaws
 
 Embracing our flaws is an essential part of acceptance, but there are many common misconceptions about flaws that can make it difficult to do so. In this chapter, we will explore some of these misconceptions.
 
