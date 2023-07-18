@@ -8,5 +8,4 @@ Through real-life stories and practical exercises, The Power of Acceptance shows
 
 Whether you struggle with self-doubt, insecurity, or simply want to lead a more authentic life, The Power of Acceptance is an essential read. By embracing your flaws and accepting yourself as you are, you can unlock your full potential and lead a happier, more fulfilling life.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
