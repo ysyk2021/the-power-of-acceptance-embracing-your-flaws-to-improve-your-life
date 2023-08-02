@@ -1,4 +1,4 @@
-Chapter: Negative Effects of Perfectionism
+Negative Effects of Perfectionism
 ==========================================
 
 Perfectionism, despite its seemingly positive connotations, can have detrimental effects on various aspects of our lives. While striving for excellence can be beneficial, the relentless pursuit of perfection often leads to negative consequences for our mental, emotional, and physical well-being. In this chapter, we will explore the harmful effects of perfectionism.

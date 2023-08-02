@@ -1,4 +1,4 @@
-Chapter: Definition of Fear and Anxiety
+Definition of Fear and Anxiety
 =======================================
 
 In this chapter, we will explore the definitions of fear and anxiety and their impact on our lives. By understanding the nature of fear and anxiety, we can develop strategies to embrace acceptance and overcome their negative effects, ultimately improving our lives.

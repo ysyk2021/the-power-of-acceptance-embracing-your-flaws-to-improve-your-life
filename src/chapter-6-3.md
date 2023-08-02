@@ -1,4 +1,4 @@
-Chapter: Building Resilience
+Building Resilience
 ============================
 
 In this chapter, we will explore the importance of building resilience and how it can help us navigate through life's challenges. By understanding the concept of resilience and learning effective strategies to cultivate it, we can enhance our ability to accept our flaws and improve our lives.

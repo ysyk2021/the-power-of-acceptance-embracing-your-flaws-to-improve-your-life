@@ -1,4 +1,4 @@
-Chapter: Common Misconceptions about Flaws
+Common Misconceptions about Flaws
 ==========================================
 
 In this chapter, we will address common misconceptions about flaws and challenge the beliefs that often hinder our ability to embrace them. By dispelling these misconceptions, we can foster a more compassionate and empowering perspective on our flaws.

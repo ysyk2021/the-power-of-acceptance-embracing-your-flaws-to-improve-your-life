@@ -1,4 +1,4 @@
-Chapter: Definition of Acceptance
+Definition of Acceptance
 =================================
 
 Acceptance is a fundamental concept that holds the power to transform our lives. It involves embracing and acknowledging ourselves, others, and the circumstances we encounter, without judgment or resistance. In this chapter, we will explore the true meaning of acceptance and its profound impact on personal growth and well-being.

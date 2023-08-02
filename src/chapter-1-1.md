@@ -1,4 +1,4 @@
-Chapter: Importance of Acceptance in Personal Growth and Well-Being
+Importance of Acceptance in Personal Growth and Well-Being
 ===================================================================
 
 Acceptance is a transformative mindset that holds immense power in our journey of personal growth and overall well-being. In this chapter, we will delve into the significance of acceptance and explore how it can positively impact various aspects of our lives.

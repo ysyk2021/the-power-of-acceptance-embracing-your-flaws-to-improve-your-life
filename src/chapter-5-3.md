@@ -1,4 +1,4 @@
-Chapter: Building Self-Compassion
+Building Self-Compassion
 =================================
 
 Self-compassion is a vital component of acceptance and plays a significant role in our personal growth and well-being. In this chapter, we will explore the importance of self-compassion and delve into practical strategies for cultivating self-compassion in our lives.

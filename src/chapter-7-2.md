@@ -1,4 +1,4 @@
-Chapter: Benefits of Practicing Mindfulness
+Benefits of Practicing Mindfulness
 ===========================================
 
 Mindfulness is a transformative practice that can profoundly impact our lives. In this chapter, we will explore the numerous benefits of incorporating mindfulness into our daily routines. By cultivating mindfulness, we can enhance our well-being, reduce stress, and improve our overall quality of life.

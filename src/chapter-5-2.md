@@ -1,4 +1,4 @@
-Chapter: Techniques for Overcoming Shame and Self-Doubt
+Techniques for Overcoming Shame and Self-Doubt
 =======================================================
 
 Shame and self-doubt are powerful emotions that can hinder our personal growth and well-being. In this chapter, we will explore effective techniques for overcoming shame and self-doubt, allowing us to embrace acceptance and lead a more fulfilling life.

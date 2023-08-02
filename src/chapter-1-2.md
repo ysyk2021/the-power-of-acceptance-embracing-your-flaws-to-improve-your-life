@@ -1,4 +1,4 @@
-Chapter: Overview of the Book's Contents
+Overview of the Book's Contents
 ========================================
 
 In this chapter, we will provide an overview of the contents of "The Power of Acceptance: Embracing Your Flaws to Improve Your Life." This book is a guide to help individuals navigate the journey of self-acceptance and harness the transformative power of embracing their flaws. Here is a breakdown of the chapters included in this book:

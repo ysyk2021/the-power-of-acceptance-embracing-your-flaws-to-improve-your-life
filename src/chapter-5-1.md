@@ -1,4 +1,4 @@
-Chapter: Definition of Shame and Self-Doubt
+Definition of Shame and Self-Doubt
 ===========================================
 
 Shame and self-doubt are deeply rooted emotions that can significantly impact our self-perception, relationships, and overall well-being. In this chapter, we will explore the definitions of shame and self-doubt, gaining a deeper understanding of these emotions and their effects on our lives.

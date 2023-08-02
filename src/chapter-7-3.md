@@ -1,4 +1,4 @@
-Chapter: Techniques for Incorporating Mindfulness into Daily Life
+Techniques for Incorporating Mindfulness into Daily Life
 =================================================================
 
 Incorporating mindfulness into our daily routines is essential for reaping its benefits and cultivating a more present and fulfilling life. In this chapter, we will explore various techniques and practical strategies to help you integrate mindfulness seamlessly into your day-to-day activities.

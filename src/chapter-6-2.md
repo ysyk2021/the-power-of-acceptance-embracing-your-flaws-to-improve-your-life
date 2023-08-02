@@ -1,4 +1,4 @@
-Chapter: Techniques for Managing Fear and Anxiety
+Techniques for Managing Fear and Anxiety
 =================================================
 
 In this chapter, we will explore various techniques and strategies to help you effectively manage fear and anxiety in your life. By embracing acceptance and implementing these techniques, you can gain control over your emotions, reduce stress, and improve your overall well-being.

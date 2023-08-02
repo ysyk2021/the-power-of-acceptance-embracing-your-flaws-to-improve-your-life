@@ -1,4 +1,4 @@
-Chapter: Strategies for Building Accepting Relationships
+Strategies for Building Accepting Relationships
 ========================================================
 
 In this chapter, we explore strategies and techniques for building accepting relationships that foster personal growth and genuine connections. By cultivating acceptance in our interactions with others, we create an environment of understanding, empathy, and support that nurtures both our own growth and the growth of those around us.
