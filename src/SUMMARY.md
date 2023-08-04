@@ -2,7 +2,6 @@
 
 - [Chapter 1: Introduction](README.md)
   - [Importance of acceptance in personal growth and well-being](chapter-1-1.md)
-  - [Overview of the book's contents](chapter-1-2.md)
 - [Chapter 2: Understanding Acceptance](chapter-2.md)
   - [Definition of acceptance](chapter-2-1.md)
   - [Types of acceptance](chapter-2-2.md)
