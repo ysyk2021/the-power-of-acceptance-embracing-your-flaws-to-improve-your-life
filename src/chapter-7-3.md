@@ -51,21 +51,3 @@ Integrating Mindfulness into Bedtime Routine
 * **Progressive Relaxation**: Practice progressive muscle relaxation or engage in a calming activity, such as reading or listening to soft music, to help your body and mind unwind before sleep.
 
 By incorporating these techniques into your daily life, you can infuse mindfulness into every moment, fostering a deeper sense of presence, peace, and well-being. Remember, mindfulness is a practice that unfolds over time, so be patient and compassionate with yourself as you embark on this journey.
-
-Previous chapters:
-
-* Introduction: Embracing Your Flaws and Finding Inner Peace
-* Chapter: Definition of Perfectionism
-* Chapter: Building Resilience
-* Chapter: Definition of Fear and Anxiety
-* Chapter: Negative Effects of Perfectionism
-* Chapter: Definition of Acceptance
-* Chapter: Benefits of Acceptance
-* Chapter: Types of Acceptance
-* Chapter: Building Self-Compassion
-* Chapter: Techniques for Overcoming Shame and Self-Doubt
-* Chapter: Benefits of Practicing Mindfulness
-
-Next chapter:
-
-* Chapter: Cultivating Gratitude for a Fulfilling Life

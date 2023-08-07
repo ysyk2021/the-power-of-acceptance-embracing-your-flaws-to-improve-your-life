@@ -57,19 +57,4 @@ Building self-compassion requires practice and patience. Here are some strategie
 Embracing Self-Compassion
 -------------------------
 
-Building self-compassion is a lifelong journey that involves self-awareness, practice, and patience. By cultivating self-compassion, we develop a kind and nurturing relationship with ourselves, leading to increased well-being, emotional resilience, and personal growth. In the following chapters, we will explore additional techniques and exercises to support our journey towards self-compassion.
-
-Previous chapters:
-
-* Introduction: Embracing Your Flaws and Finding Inner Peace
-* Chapter: Definition of Perfectionism
-* Chapter: Building Resilience
-* Chapter: Definition of Fear and Anxiety
-* Chapter: Negative Effects of Perfectionism
-* Chapter: Definition of Acceptance
-* Chapter: Benefits of Acceptance
-* Chapter: Types of Acceptance
-
-Next chapter:
-
-* Chapter: Techniques for Letting Go of Perfectionism
+Building self-compassion is a lifelong journey that involves self-awareness, practice, and patience. By cultivating self-compassion, we develop a kind and nurturing relationship with ourselves, leading to increased well-being, emotional resilience, and personal growth.

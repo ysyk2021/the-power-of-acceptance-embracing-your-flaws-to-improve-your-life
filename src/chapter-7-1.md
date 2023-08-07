@@ -42,4 +42,3 @@ Conclusion
 
 Mindfulness is a powerful tool for developing greater self-awareness, compassion, and resilience. By practicing techniques such as mindful breathing, body scan meditation, and mindful walking, we can cultivate a more mindful mindset and embrace acceptance towards ourselves and others. Remember that mindfulness is a practice, not a destination - it takes time and effort to cultivate a more mindful mindset, but the benefits can be profound.
 
-

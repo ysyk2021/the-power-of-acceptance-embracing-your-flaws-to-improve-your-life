@@ -46,20 +46,4 @@ Self-compassion is a crucial component of overcoming shame and self-doubt. By tr
 Embracing Your True Worth
 -------------------------
 
-Overcoming shame and self-doubt is a gradual process that requires patience, self-compassion, and practice. By implementing these techniques, you can cultivate a more accepting and nurturing relationship with yourself, allowing you to embrace your true worth and live a life free from the constraints of shame and self-doubt. In the following chapters, we will explore additional strategies to further support your journey towards self-acceptance and personal growth.
-
-Previous chapters:
-
-* Introduction: Embracing Your Flaws and Finding Inner Peace
-* Chapter: Definition of Perfectionism
-* Chapter: Building Resilience
-* Chapter: Definition of Fear and Anxiety
-* Chapter: Negative Effects of Perfectionism
-* Chapter: Definition of Acceptance
-* Chapter: Benefits of Acceptance
-* Chapter: Types of Acceptance
-* Chapter: Building Self-Compassion
-
-Next chapter:
-
-* Chapter: Cultivating Mindfulness for Personal Growth
+Overcoming shame and self-doubt is a gradual process that requires patience, self-compassion, and practice. By implementing these techniques, you can cultivate a more accepting and nurturing relationship with yourself, allowing you to embrace your true worth and live a life free from the constraints of shame and self-doubt.

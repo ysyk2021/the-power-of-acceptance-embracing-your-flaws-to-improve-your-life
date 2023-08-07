@@ -43,12 +43,3 @@ Here are some effective strategies to cultivate resilience and embrace our flaws
 7. **Seek Professional Help**: If you find it challenging to build resilience on your own, don't hesitate to seek professional help. A therapist or counselor can provide guidance, tools, and support tailored to your specific needs.
 
 By implementing these strategies and developing resilience, we can navigate life's challenges with greater ease, accept our flaws, and foster personal growth and self-improvement.
-
-Previous chapters:
-
-* Introduction: Embracing Your Flaws and Finding Inner Peace
-* Chapter: Definition of Perfectionism
-
-Next chapter:
-
-* Chapter: Cultivating Self-Compassion

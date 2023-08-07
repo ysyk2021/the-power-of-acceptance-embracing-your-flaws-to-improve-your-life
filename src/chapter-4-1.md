@@ -48,11 +48,3 @@ Embracing acceptance involves recognizing that perfection is unattainable and th
 5. **Seek Support**: Reach out to supportive friends, family, or professionals who can provide guidance and encouragement on your journey towards self-acceptance. Share your struggles and learn from others' experiences.
 
 By understanding the definition of perfectionism and implementing strategies to embrace acceptance, you can cultivate a healthier mindset and improve your overall well-being.
-
-Previous chapters:
-
-* Introduction: Embracing Your Flaws and Finding Inner Peace
-
-Next chapter:
-
-* Chapter: Techniques for Cultivating Self-Acceptance

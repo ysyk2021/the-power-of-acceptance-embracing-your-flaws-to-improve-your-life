@@ -45,13 +45,3 @@ To embrace acceptance and effectively manage fear and anxiety, consider the foll
 6. **Professional Help**: If fear and anxiety significantly impact your daily life, don't hesitate to seek professional help. A mental health professional can provide assessment, diagnosis, and evidence-based treatments, such as therapy or medication if needed.
 
 By understanding the definitions of fear and anxiety, and implementing strategies to embrace acceptance and manage their effects, we can overcome their negative impact and improve our overall well-being.
-
-Previous chapters:
-
-* Introduction: Embracing Your Flaws and Finding Inner Peace
-* Chapter: Definition of Perfectionism
-* Chapter: Building Resilience
-
-Next chapter:
-
-* Chapter: Cultivating Self-Compassion

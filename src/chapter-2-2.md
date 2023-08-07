@@ -41,18 +41,4 @@ Spiritual acceptance refers to accepting the deeper dimensions of life, such as 
 Cultivating a Comprehensive Practice of Acceptance
 --------------------------------------------------
 
-By recognizing and exploring these different types of acceptance, we can cultivate a more comprehensive practice of acceptance in our lives. Each type offers unique insights and opportunities for personal growth, well-being, and authentic living. In the following chapters, we will delve into practical techniques and exercises to help us develop and embody these various forms of acceptance.
-
-Previous chapters:
-
-* Introduction: Embracing Your Flaws and Finding Inner Peace
-* Chapter: Definition of Perfectionism
-* Chapter: Building Resilience
-* Chapter: Definition of Fear and Anxiety
-* Chapter: Negative Effects of Perfectionism
-* Chapter: Definition of Acceptance
-* Chapter: Benefits of Acceptance
-
-Next chapter:
-
-* Chapter: Techniques for Letting Go of Perfectionism
+By recognizing and exploring these different types of acceptance, we can cultivate a more comprehensive practice of acceptance in our lives. Each type offers unique insights and opportunities for personal growth, well-being, and authentic living.

@@ -31,11 +31,3 @@ Malala Yousafzai, a Pakistani activist for female education, exemplifies the pow
 These individuals demonstrate that embracing flaws and challenges can lead to extraordinary achievements. By accepting their vulnerabilities, they tapped into their unique strengths and used their experiences as catalysts for personal and societal transformation.
 
 Their stories serve as reminders that our flaws do not define us; rather, it is our response to them that shapes our path. Embracing our flaws and accepting ourselves authentically can unlock our hidden potential and pave the way for meaningful success and fulfillment.
-
-Previous chapters:
-
-* Introduction: Embracing Your Flaws and Finding Inner Peace
-
-Next chapter:
-
-* Chapter: Techniques for Overcoming Shame and Self-Doubt
