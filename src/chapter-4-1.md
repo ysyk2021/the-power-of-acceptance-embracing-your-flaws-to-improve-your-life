@@ -1,5 +1,3 @@
-Definition of Perfectionism
-====================================
 
 In this chapter, we will explore the concept of perfectionism and its impact on our lives. By understanding the definition of perfectionism, we can gain insights into how it affects our well-being and discover strategies for embracing acceptance and self-improvement.
 

@@ -1,4 +1,3 @@
-# Benefits of Practicing Mindfulness
 
 In this chapter, we will examine the numerous benefits of practicing mindfulness. Mindfulness is the practice of intentionally paying attention to the present moment without judgment. It allows us to cultivate a deeper sense of awareness and acceptance, leading to positive changes in our lives.
 

@@ -1,5 +1,3 @@
-Chapter 5: Overcoming Shame and Self-Doubt
-==========================================
 
 Shame and self-doubt can be significant barriers to acceptance. When we feel ashamed or doubt ourselves, it can lead to negative self-talk, a lack of confidence, and an inability to embrace our flaws. In this chapter, we will explore the definition of shame and self-doubt, techniques for overcoming them, and building self-compassion.
 

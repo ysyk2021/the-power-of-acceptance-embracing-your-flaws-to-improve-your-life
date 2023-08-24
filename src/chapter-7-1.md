@@ -1,4 +1,3 @@
-# Definition of Mindfulness
 
 In this chapter, we will explore the concept of mindfulness - a key component in embracing acceptance and improving personal growth.
 

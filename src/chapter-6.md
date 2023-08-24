@@ -1,5 +1,3 @@
-Chapter 6: Managing Fear and Anxiety
-====================================
 
 Fear and anxiety are common emotions that can hold us back from achieving personal growth and fulfillment. In this chapter, we will explore techniques for managing fear and anxiety, and building resilience to overcome these emotions.
 

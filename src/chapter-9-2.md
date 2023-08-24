@@ -1,5 +1,3 @@
-Techniques for Using Acceptance to Improve Personal Growth
-===================================================================
 
 In this chapter, we explore practical techniques and strategies for using acceptance as a powerful tool to improve personal growth. By incorporating these techniques into our lives, we can harness the transformative potential of acceptance in cultivating self-awareness, resilience, and positive change.
 

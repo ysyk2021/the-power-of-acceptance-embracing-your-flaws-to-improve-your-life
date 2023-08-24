@@ -1,5 +1,3 @@
-Types of Acceptance
-============================
 
 Acceptance is a multifaceted concept that encompasses various dimensions of our lives. In this chapter, we will explore different types of acceptance that can empower us to embrace our flaws and improve our lives. By understanding these different types, we can cultivate a more comprehensive practice of acceptance.
 

@@ -1,5 +1,3 @@
-Chapter 9: Acceptance and Personal Growth
-=========================================
 
 Connection between Acceptance and Personal Growth
 -------------------------------------------------

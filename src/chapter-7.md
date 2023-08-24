@@ -1,5 +1,3 @@
-Chapter 7: Mindfulness and Acceptance
-=====================================
 
 In this chapter, we will explore the concept of mindfulness and its relationship with acceptance. We will also discuss the benefits of practicing mindfulness and techniques for incorporating mindfulness into daily life.
 

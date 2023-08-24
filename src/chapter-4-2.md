@@ -1,4 +1,3 @@
-# Negative Effects of Perfectionism
 
 Perfectionism, although often seen as a positive trait, can have detrimental effects on our well-being and overall quality of life. In this chapter, we will explore the negative consequences of perfectionism and how it hinders our ability to embrace acceptance and improve our lives.
 

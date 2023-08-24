@@ -1,4 +1,3 @@
-# Techniques for Overcoming Shame and Self-Doubt
 
 Shame and self-doubt can be powerful barriers to acceptance and personal growth. In this chapter, we will explore techniques and strategies that can help us overcome these negative emotions, embrace our flaws, and cultivate self-acceptance.
 

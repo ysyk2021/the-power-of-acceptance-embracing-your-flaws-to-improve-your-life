@@ -1,5 +1,3 @@
-Techniques for Letting Go of Perfectionism
-===================================================
 
 In this chapter, we will explore effective techniques for letting go of perfectionism and embracing acceptance. By understanding the harmful effects of perfectionism and implementing these strategies, we can free ourselves from unrealistic standards, reduce stress, and improve our overall well-being.
 
